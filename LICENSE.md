@@ -1,4 +1,4 @@
-
+hidden Scripts for rivals offers the most advanced rivals Script, with auto-farm and one-hit kill. Perfect for dominating any match.
 
 
 
